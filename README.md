@@ -2,7 +2,6 @@
 
 ## 📧 Contact Information
 - **Email**: ahmermaqsoodh@gmail.com
-- **Phone**: +92-334-8515458
 
 ## 💼 Professional Experience
 
